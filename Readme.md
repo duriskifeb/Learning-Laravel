@@ -1,0 +1,1 @@
+Masalah yang berlalu perasaan yang awokwaokwaokwaok
